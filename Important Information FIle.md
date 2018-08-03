@@ -17,9 +17,10 @@ https://www.youtube.com/watch?v=3xGLc-zz9cA
 https://www.youtube.com/watch?v=3xGLc-zz9cA
 https://www.youtube.com/watch?v=G3psxs3gyf8
 
-# Email Me if you have any questions: adohertyk@gmail.com
-# Linkedin: Abiola Kim Doherty
-# Instagram: @kool_ad1
+Email Me if you have any questions: adohertyk@gmail.com
+Linkedin: Abiola Kim Doherty
+Instagram: @kool_ad1
 
-# Mose's Contact
-# Email: mtayoloye@gmail.com
+Mose's Contact
+Email: mtayoloye@gmail.com
+Linkedin: Moseola Yoyole
