@@ -13,8 +13,11 @@ https://stackoverflow.com/
 
 # Interestting Blockchain Videos:
 https://www.youtube.com/watch?v=hYip_Vuv8J0
+
 https://www.youtube.com/watch?v=3xGLc-zz9cA
+
 https://www.youtube.com/watch?v=3xGLc-zz9cA
+
 https://www.youtube.com/watch?v=G3psxs3gyf8
 
 Email Me if you have any questions: adohertyk@gmail.com
