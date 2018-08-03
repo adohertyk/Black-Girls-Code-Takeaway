@@ -24,6 +24,7 @@ Linkedin: Abiola Kim Doherty
 Instagram: @kool_ad1
 
 Mose's Contact
+
 Email: mtayoloye@gmail.com
 
 Linkedin: Moseola Yoyole
