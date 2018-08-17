@@ -32,4 +32,4 @@ Mose's Contact
 
 Email: mtayoloye@gmail.com
 
-Linkedin: Mosekola Yoyole
+Linkedin: Mosekola Yoloye
